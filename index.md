@@ -29,6 +29,7 @@ Advisors: Nelson Roque, Ph.D.; Mustapha Mouloua, Ph.D.
 ## Awards
 
 `2024`
+
 Knights of Distinction, *University of Central Florida*, Orlando, Florida
 
 Honors in the Major, *University of Central Florida*, Orlando, Florida
