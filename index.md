@@ -10,29 +10,21 @@ title: Maria Gonzalez's CV
 </div>
 
 
-## Currently
-
-Standing on the shoulders of giants
-
-### Specialized in
-
-Laws of motion, gravitation, minting coins, disliking [Robert Hooke](http://en.wikipedia.org/wiki/Robert_Hooke)
-
-
-### Research interests
-
-Cooling, power series, optics, alchemy, planetary motions, apples.
-
-
 ## Education
 
-`1654-1660`
-__The King's School, Grantham.__
+`2019 - 2021`
+__Miami Dade College, Miami, Florida__
 
-`June 1661 - now`
-__Trinity College, Cambridge__
+- Associate Degree of Arts in Psychology Cum Laude
 
-- Sizar
+`2021 - 2024`
+__University of Central Florida, Orlando, Florida__
+
+- Bachelor of Science in Psychology, Neuroscience track, Honors in the Major
+- Minors: Biological Anthropology GPA 3.47
+- Honors Undergraduate Thesis: “Applications of Vocal Biomarkers in the Study of Bilingualism and Language Learning.”
+Advisors: Nelson Roque, Ph.D.; Mustapha Mouloua, Ph.D
+
 
 `1667 - death`
 __Trinity College, Cambridge__
