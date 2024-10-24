@@ -23,22 +23,25 @@ __University of Central Florida, Orlando, Florida__
 - Bachelor of Science in Psychology, Neuroscience track, Honors in the Major
 - Minors: Biological Anthropology GPA 3.47
 - Honors Undergraduate Thesis: “Applications of Vocal Biomarkers in the Study of Bilingualism and Language Learning.”
-Advisors: Nelson Roque, Ph.D.; Mustapha Mouloua, Ph.D
-
-
-`1667 - death`
-__Trinity College, Cambridge__
-
-- Fellow
-
+Advisors: Nelson Roque, Ph.D.; Mustapha Mouloua, Ph.D.
 
 
 ## Awards
 
-`2012`
-President, *Royal Society*, London, UK
+`2024`
+Knights of Distinction, *University of Central Florida*, Orlando, Florida
 
-Associate, *French Academy of Science*, Paris, France
+Honors in the Major, *University of Central Florida*, Orlando, Florida
+
+Certificate of Recognition for the Student Undergraduate Research Council, *University of Central Florida*, Orlando, Florida
+
+`2023`
+
+Ford Fund Scholarship, *Hispanic Association of Colleges and Universities (HACU)*, Orlando, Florida
+
+
+
+
 
 
 
